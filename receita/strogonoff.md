@@ -12,4 +12,6 @@
 
 - 2 colheres de sopa de ketchup
 
+- sal a gosto
+
   
